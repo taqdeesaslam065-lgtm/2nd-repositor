@@ -1,6 +1,6 @@
 
 
-## 🌙 Ramadan Blessings
+##  Ramadan Blessings
 
 This repository shares a short reflection on the blessings of Ramadan—a month of faith, patience, compassion, and self-improvement. It highlights the spiritual meaning of fasting, prayer, charity, and community, reminding us to grow in kindness and gratitude during this sacred time.
 
